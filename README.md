@@ -1,1 +1,0 @@
-# GH_ICT9S_Q3Exercise3_Amoyo.html
